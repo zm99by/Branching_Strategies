@@ -10,14 +10,17 @@ Behind the curtain in the pantomime
 Hold the line!
 Does anybody want to take it anymore
 
-5. Show must go on!
-Show must go on!
-I'll face it with a grin.
-I'm never giving in
-On with the show!
-I'll top the bill.
-I'll overkill .
-I have to find the will to
-carry on [On with the show]
-[With the - ] Show!
-Show must go on!
+
+
+4. Show must go on!
+Show must go on! Yeah!
+Inside my heart is breaking
+My make-up may be flaking
+But my smile still stays on.
+
+My soul is painted like
+the wings of butterflies.
+Fairytales of yesterday
+will grow but never die.
+I can fly my friends!
+
