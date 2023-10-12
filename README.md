@@ -1,4 +1,5 @@
 ### Finalize the Song!
+
 ```
 1. Empty spaces - what are we living for?
 Abandoned places - I
@@ -10,7 +11,7 @@ Another hero, another mindless crime
 Behind the curtain in the pantomime
 Hold the line!
 Does anybody want to take it anymore
-```
+
 2. Show must go on!
 Show must go on! Yeah!
 Inside my heart is breaking
