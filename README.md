@@ -1,4 +1,3 @@
-### Finalize the Song!
 ```
 1. Empty spaces - what are we living for?
 Abandoned places - I
@@ -31,4 +30,16 @@ round the corner now.
 Outside the dawn is breaking
 But inside in the dark
 I'm aching to be free
+
+5. Show must go on!
+Show must go on!
+I'll face it with a grin.
+I'm never giving in
+On with the show!
+I'll top the bill.
+I'll overkill .
+I have to find the will to
+carry on [On with the show]
+[With the - ] Show!
+Show must go on!
 ```
